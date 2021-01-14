@@ -1,1 +1,1 @@
-![image](https://media.giphy.com/media/3o85xGr7NxBC4eGTte/giphy.gif)
+![image](https://raw.githubusercontent.com/petritlame/petritlame/main/ezgif.com-resize.gif)
